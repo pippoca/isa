@@ -7,9 +7,8 @@
 - ❤️ Amo cachorros 
  
 - Para entrar em contato comigo basta digitar o email : 00001099301579sp@al.educacao.sp.gov.br
-![](https://tenor.com/pt-BR/view/iconic-icon-dog-pomeranian-funny-gif-15363756060953670191)
 
-
+-![](https://media1.tenor.com/m/dj9jxfUbDHAAAAAd/dog-smile-dog.gif)
 
 
 
